@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @AzbestX-byte
+- 👀 I’m interested in codin'
+- 🌱 I’m currently learning codin'
+- 💞️ I’m looking to collaborate on codin'
+- 📫 How to reach me 100 meters
+- 😄 Pronouns: man/child
+- ⚡ Fun fact: I am fucked
